@@ -1,2 +1,1 @@
-# 2nd-WEB-PAGE
-MY SCHOOL
+
